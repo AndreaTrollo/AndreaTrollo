@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @AndreaTrollo
-- 👀 I’m interested in [to be defined]
+- 👀 I’m interested in many things ...
 - 🌱 I’m currently learning [to be defined]
 - 💞️ I’m looking to collaborate on [to be defined]
 - 📫 How to reach me [to be defined]
